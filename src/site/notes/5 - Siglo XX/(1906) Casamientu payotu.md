@@ -1,0 +1,7 @@
+---
+{"dg-publish":true,"permalink":"/5 - Siglo XX/(1906) Casamientu payotu/","tags":["#Siglo_19","central","a1906","Bernardo_Acevedo_y_Huelves","escrito","Gijón","cuento"]}
+---
+
+[link](https://maspueblosdeasturias.blogspot.com/2013/10/poesia-antigua-asturiana-segunda-parte.html)
+
+Un xueves pe la mañana Xuan y Pachín se topanon, y, como bonos amigos, apertánonse la mano. - ¿Tú, periquí, amigu Xuan? - Pasé per to casa, Pachu, y como non te ví nella vini pa Uvieu al mercau col antoxu de buscate, y ya que mos alcontramos tomaremos, Lin, les once ,¿non te paéz bien pensao? -Sí ,home , sí , non ta demás que tomemos un sorbiatu. Y colánonse nun verbu nel chigrín  más cercanu pa saboriar el bon vinu y allegres siguin falando: - Voi confesate, Pachín, lo que á buscate me traxo, sin arrodiu y paraxismos, lo mesmo que te lo falo: De la to fía Pepina namoros´el mió fíu Xuacu y quier casase con ella, ¿podrá , Xuanín, alcanzallo? - Sí, home, sí, y po la noticia enllenaremos el vasu; non me desgusta l´asuntu y po lo mesmo bebiamos. - Pos entóncienes, amigu, voime derechín al granu: Corteyaba el mió rapaz á Sidoruca del Gansu y col su corteyamientu andaba yo desgustau perque la ví munches veces nel Castañeu xugando ¿sabes con quién? ¡non t´asustes! ¡col folgazán Xiblagalgos.
