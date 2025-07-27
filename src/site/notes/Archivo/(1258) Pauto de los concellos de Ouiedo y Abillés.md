@@ -1,0 +1,6 @@
+---
+{"dg-publish":true,"permalink":"/Archivo/(1258) Pauto de los concellos de Ouiedo y Abillés/","tags":["#Siglo_13","a1258","escrito","Oviedo","medieval","documento"]}
+---
+
+
+Sabant todos por esti scripto. que nos Concello de Ouiedo Iuyzes t / 1 Alcaydes t Iurados. de una parte. Hye Nos Conciello de Abilles / 2 Iuyzes et Alcaydes t Iurados de otra parte. fazemos pleito t conuen / 3 entre nos. que cadauna de nos partes deuemos fazer tomar la / 4 Moneda del Rey./ en nuestras Villas. t en nuestras Alfozes. t entodo / 5 nuestro poderio. Esto fazemos por que ye seruicio del Rey./ t lo manda / 6 el. t por que ye prouecho de todos los Poblos. Hye ponemos que / 7 todo omne que reffugar el dinero foras sifor falsso ho britado que passe / 8 la Cruz./ que peche por cada dinero. vj. dinero. ye prometemos Iuyzes / 9 et Alcaydes t Iurados de con so uno./ por la Iura que auemos fecha de / 10 mantener Iusticia./ por mantener estj Coto./ t estj Conuen. Hye / 11 por tal que todo seya maes creudo ye maes firme t non uenga / 12 en dolda. feziemos ende fazer duas Cartas partidas por Abc. / 13 t seellamos las de nuestros Sééllos. ffacta karta./ en Mes de Agosto dia / 14 de sant Bartolome. ERa. Mª. ccª. Lxxxxª. viª.

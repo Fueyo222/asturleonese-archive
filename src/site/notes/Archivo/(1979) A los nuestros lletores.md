@@ -1,0 +1,9 @@
+---
+{"dg-publish":true,"permalink":"/Archivo/(1979) A los nuestros lletores/","tags":["#Siglo_20","a1979","central","Alitar_Asturies","escrito","Gijón","periódico"]}
+---
+
+[link](moz-extension://93546a79-e876-42f8-b2cc-3ddf14718ce0/editor/page.html)
+
+N'esti mes d'ochobre "Alitar Asturies" fai un añu y mediu de permanencia nel periódicu EL COMERCIO. Los que redatamos esta fueya somos conocedores de que podemos cometer enquivocos, escaecer coses importantes so la nuestra llingua y cultura. Por ello, creyemos que ye perinteresante que los lletores d'esta seción "Alitar Asturies" nos escriban. Puén cunta-nos qué ye lo que ve malo o bueno n'esta fueya, idees que se puén desarrollar, qué ye lo que más ios presta, qué echen en falta... En fin, trata-se que los lletores dean la só opinión. De la mesma manera, puén escribi-nos cuntando-nos coses asturianístiques interesantes. Esto ye: puen escribí-nos de too lo que ios pruya ¡Ah- les cartes, si ye posible que nun pasen de MEDIU FOLIU per una cara y a doble espaciu en lletra que s'entienda y han dir FIRMAES. Ca selmana publicaremos les más interesantes.
+Tamién ofrecemos esta fueya a toos los lletores que quieran comunicá-nos daqué interesante dende'l puntu de vista asturianísticu: llingua, ecoloxía, música, atualidá cultural, tradiciones populares, etc... etc.. N'esti casu, les colaboraciones nun han pasar del FOLIU Y MEDIU per una cara y a doble espaciu, siendo preferibles escrites a máquina. D'elles, esvillaremos les más afayaíces.
+NOTA: Los lletores puén escribir en cualquier de les variedaes del asturiano: central, oriental y ocidental.

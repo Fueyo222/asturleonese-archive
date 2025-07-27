@@ -1,0 +1,6 @@
+---
+{"dg-publish":true,"permalink":"/Archivo/(1258) Albalá del Rei Don Alfonso X/","tags":["#Siglo_13","a1258","escrito","Oviedo","medieval","documento"]}
+---
+
+
+Connosçuda cosa sea a todos los omnes que esta Carta uieren. Cuemo nos Don ALFONSO por la gracia de dios Rey de / 1 Castiella de Toledo de Leon de Gallizia de Seuilla de Cordoua de Murcia t de Iahen. Por ffazer bien t merced al / 2 Conceio de Ouiedo damos les t otorgamos les ffata .diez annos las Cuchares de su villa assi cuemo las tienen de nos Re / 3 mir diaz t Diego ffernandezw. E esta merced les ffazemos pora cercar su Villa. t mandamos que compiecen estos diez annos quin / 4 ze dias andados de Iulio que es en el Era desta Carta. E mandamos t deffendemos que ninguno no sea osado de yr contra esta / 5 Carta nin de crebantar la nin de minguar la en ninguna cosa. ca qual quier que lo ffiziesse. al cuerpo t a quanto que ouiesse nos tor/ 6 naríemos por ello. FFecha la Carta en Medina del Campo por mandado del Rey. Sabado. sex dias andados del mes de / 7 Iulío. en Era de mille t dozientos t Nouaenta t sex annos. Gil martinez de Siguença la escriuio por mandado de Millan perez / 8 de Aellon en el anno Septímo que el Rey don Alffonso regno.

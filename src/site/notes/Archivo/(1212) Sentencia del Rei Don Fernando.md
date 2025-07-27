@@ -1,0 +1,7 @@
+---
+{"dg-publish":true,"permalink":"/Archivo/(1212) Sentencia del Rei Don Fernando/","tags":["#Siglo_13","a1212","escrito","Oviedo","medieval","documento"]}
+---
+
+
+Connocida cosa sea a todos losque [...] carta uieren que sobrel pleyto que auien los de Ouiedo conlos de Noranora sobre / 1 los fuerosque an de fazer los [...] nora al Conceio./ uinieron ambas las partes ante mj don ffernando por / 2 la gracia de dios Rey de Castiella t de Toledo de Leon t de Gallizia t de Cordoua. t oydas las razones / 3 de ambas las partes t sabida la [...]t t uistos los priuilegios que mio padre t yo diemos al Conceio de Ouiedo. t / 4 oyda la pesquisa que mande fazer [...]l merinadgo t sobre los treynta morabetis que demandaua el Conceio de Ouiedo / 5 alos de Noranora./ otorgo t con[...]os privilegios t la donacion que myo padre t yo diemos al Conceio de Ouiedo / 6 t mando que aquelos fueros que fazien [...] Noranora t fazer deuien amyo padre o al cauallero. que la tierra tenie del antes / 7 de la donacion. que aquellos fagan al Conceio de Ouiedo t mas non. t quelles mando otrosi que les non demanden mas. Et / 8 si yo entendiesse que por cobdicia [...] querencia los sacauades de fuero o les tomauades mas daquello que amyo padre fazien / 9 o al cauallero que la tierra tenie ante [...] donacion que el uos dio./ fazer uos lo ya perder. facta carta apud Burgensem iij. die / 10 Madij. Regia exparte. ERA. Mª. ccª. Lxxxª.
+

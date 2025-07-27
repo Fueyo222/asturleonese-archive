@@ -1,0 +1,8 @@
+---
+{"dg-publish":true,"permalink":"/Archivo/(1255) Préstamo del monasterio de San Vicente de Oviedo/","tags":["#Siglo_13","a1255","escrito","Oviedo","medieval","documento"]}
+---
+
+
+In nomine Domini amen. Sabiant todos quantos esti escripto virent que nos, don Alfonso, pela gracia de Dios abbat e convento de San Vicenti, damos ye otorgamos ad vos, don Gutter Pelaiz cibdadano de Ovedo, toda la meatat de quanto heredamiento nos avemos o aver devemos en Perlio en prestamo por en todos vuestros dias, por pleyto que nos pobledes en elo duas caserias de techos e de omes ye al minos de dos dos boes e duas duas vacas e XII XII recelos ye lo tengades sempre poblado. Ye a vuestro finamento que nos fique livremente con esti poblo ia decho, bono ye derecho e con semente ye comente assi commo estedier lavrada ye obrada. Ye nos visitarla cada anno por nuestro vigario que nos alleguedes nedes ne la diedes a nenguno en prestamo, ye vos mandarlu bien recibir ya darli de comer ye lo que li for mester. E dar al nuestro obedencial de la enfermeria derechamente cada anno el dezmo de quanta collecta vos ende ovierdes o otri por vos, e seer nos amigo bonu e fiel al monesterio ye a los monges que hi forent con proe ye sen danno hu vuestro poder for con derecho.
+Hio, don Guter Pelaiz, gradesco a Dios ye a vos esti prestamo ye esta mercet que mi fazedes, ye loo ye otorgo quanto en esta karta diz assi de la vuestra parte commo de la mia.
+Facta karta in capitulo Sancti Vincencii. X kalendas junii, era M. CC. LXXXXIII. E que esto seia maes firme feziemos en esta karta poner nuestros seelos en testemunna.
