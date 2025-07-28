@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/5 - Siglo XX/(1904) A Mercedes G. de valle/","tags":["#Siglo_20","central","a1904","José_Fernández_Quevedo_y_Llanos","escrito","Avilés","poema"]}
+{"dg-publish":true,"permalink":"/5 - Siglo XX/(1904) A Mercedes G. de valle/","tags":["#Siglo_20","central","a1904","José_Fernández_Quevedo_y_Llanos","escrito","Llanera","poema"]}
 ---
 
 [link](https://prensahistorica.mcu.es/i18n/catalogo_imagenes/grupo.do?path=1004563495)

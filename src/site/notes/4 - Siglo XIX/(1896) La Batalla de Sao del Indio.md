@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/4 - Siglo XIX/(1896) La Batalla de Sao del Indio/","tags":["#Siglo_19","central","a1896","José_Fernández_Quevedo_y_Llanos","escrito","Avilés","poema"]}
+{"dg-publish":true,"permalink":"/4 - Siglo XIX/(1896) La Batalla de Sao del Indio/","tags":["#Siglo_19","central","a1896","José_Fernández_Quevedo_y_Llanos","escrito","Llanera","poema"]}
 ---
 
 [link](https://bibliotecavirtual.asturias.es/i18n/consulta/registro.cmd?id=2630)

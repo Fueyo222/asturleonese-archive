@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/5 - Siglo XX/(1909) El insultu/","tags":["#Siglo_20","central","a1909","José_Fernández_Quevedo_y_Llanos","escrito","Avilés","poema"]}
+{"dg-publish":true,"permalink":"/5 - Siglo XX/(1909) El insultu/","tags":["#Siglo_20","central","a1909","José_Fernández_Quevedo_y_Llanos","escrito","Llanera","poema"]}
 ---
 
 

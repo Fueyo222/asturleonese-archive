@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/4 - Siglo XIX/(1882-1911) Una isprisión/","tags":["#Siglo_19","central","José_Fernández_Quevedo_y_Llanos","escrito","Avilés","poema"]}
+{"dg-publish":true,"permalink":"/4 - Siglo XIX/(1882-1911) Una isprisión/","tags":["#Siglo_19","central","José_Fernández_Quevedo_y_Llanos","escrito","Llanera","poema"]}
 ---
 
 
