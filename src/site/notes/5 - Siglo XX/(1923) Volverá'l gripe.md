@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/5 - Siglo XX/(1923) Volverá'l gripe/","tags":["#Siglo_20","central","a1923","Pepín_de_Pría","escrito","Gijón","teatro"]}
+{"dg-publish":true,"permalink":"/5 - Siglo XX/(1923) Volverá'l gripe/","tags":["#Siglo_20","central","a1923","Ramón_Alas_Pumariño","escrito","Oviedo","teatro"]}
 ---
 
 [link](https://asturies.com/cavedaynava/volveralgripe.txt)

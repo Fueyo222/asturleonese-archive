@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/5 - Siglo XX/(1921) En el último correo/"}
+{"dg-publish":true,"permalink":"/5 - Siglo XX/(1921) En el último correo/","tags":["#Siglo_20","central","Pachu_de_Antona","escrito","carta"]}
 ---
 
 [link](http://asturies.com/cavedaynava/enelultimocorreo.txt)
@@ -23,3 +23,5 @@ Tu non seas fátu y ven; piensa que aquí abunda todo, no se farán los miles (e
 Vuelve los gueyos pa tras, pa que mires aquellos tiempos pasáus, y entonces te darás cuenta que tienes aquí tu felicidá y tu dicha.
 
 Nada más Minin, non quiero cansáte más, hasta la tuya, recibe recuerdos de la mi muyer y vecinos, quieron tamien mandártelos de los míos ñacaros que aunque ya tan chaus y nada me dixeron quiero mandatelos yo en el su nombre, y tu jamás dudes de quien te quier muncho y verte pronto desea y lo soy tu amigo y vecin,
+
+PACHU DE ANTONA

@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/5 - Siglo XX/(1902) Ixuxú, viva la mio quintana/","tags":["#Siglo_20","central","a1902","escrito","periódico","Gijón","noticia"]}
+{"dg-publish":true,"permalink":"/5 - Siglo XX/(1902) Ixuxú, viva la mio quintana/","tags":["#Siglo_20","central","a1902","escrito","periódico","Francisco_González_Prieto","Gijón","noticia"]}
 ---
 
 SEMANARIU CRISTIANU PE LA GRACIA DE DIOS
