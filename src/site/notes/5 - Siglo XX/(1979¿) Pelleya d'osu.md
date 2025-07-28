@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/5 - Siglo XX/(1979¿) Pelleya d'osu/","tags":["#Siglo_20","a1910","meridional","central","Joaquín_Fernández_García","escrito","Aller","cuento"]}
+{"dg-publish":true,"permalink":"/5 - Siglo XX/(1979¿) Pelleya d'osu/","tags":["#Siglo_20","a1979","meridional","central","Joaquín_Fernández_García","escrito","Aller","cuento"]}
 ---
 
 [link](https://asturies.com/sites/default/files/escritores/peyeya.txt)
